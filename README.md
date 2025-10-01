@@ -1,0 +1,1 @@
+# Exercise-2-Smart-Home-Project-2025
